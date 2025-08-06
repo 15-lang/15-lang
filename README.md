@@ -1,4 +1,4 @@
-## I'm not new in git hub
+## I'm not new to git hub
 to follow mw please go to 
 ## 
 bulldozercafe/
