@@ -1,5 +1,5 @@
 ## I'm not new to git hub
-to follow mw please go to 
+to follow me, please go to 
 ## 
 bulldozercafe /
 Bulldozercafe64 /
