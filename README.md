@@ -1,5 +1,6 @@
 ## I'm not new to git hub
-to follow me, please go to 
+## This is not my original account
+to follow my original accounts, please go to 
 ## 
 bulldozercafe /
 Bulldozercafe64 /
